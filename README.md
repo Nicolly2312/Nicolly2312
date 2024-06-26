@@ -12,4 +12,4 @@ nicolly.kikuta@escola.pr.gov.br
 
 @nicolly.kikuta
 
-![descrição do GIF](link GIF do Tenor)
+
