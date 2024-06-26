@@ -8,7 +8,7 @@ Meu nome é Nicolly kikuta
 
 ### Você pode entrar em contato comigo✉️
 
-@nicolly.kikuta@escola.pr.gov.br
-
+nicolly.kikuta@escola.pr.gov.br
+@nicolly.kikuta
 
 ![descrição do GIF](link GIF do Tenor)
